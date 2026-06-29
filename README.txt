@@ -2,14 +2,19 @@ Note:
 
 If this account violates the general terms of use [https://docs.github.com/en/site-policy/github-terms/github-terms-of-service], please do not hesitate to report it!
 
-It is recommended to refrain from revealing your ID BEting number 🥱👉🎲👈🏿📦🏷️
-{opinions are not welcome // NG/OK::\,u{1.F38'3}::narc1ŠŠšš}
+It is recommended to refrain yourself from revealing your ID BEting number مقسنس٠ي؟ 🚨👉🎲👈🏿📦🏷️
+{opinions are not welcome // NG/OK::\,u{1.F38'3}::true👎}
 
 >> 1rvOocJ5S2Q5U258EYu9xP6EcZvufoZSzgPkcZYKDEiU
 
+_tracing⛍
+ \\ segmLayerERRsintetizi@
+        بحب ثققخق2🐶
+🆕🐰🚩
+  ... somewhere خر فتث Ⓜ️🅿️🔱
+      /بثحقثذسفثبيهرذث ١٩٠٥
 
-
-<----------------------------------------->
+<--------hidSegmLyr-------->
 
 const SHA256 = require("crypto-js/sha256");
 
