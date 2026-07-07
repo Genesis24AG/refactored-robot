@@ -1,9 +1,13 @@
-Note:
+DISCLAⓂ️EeeR:
 
 If this account violates the general terms of use [https://docs.github.com/en/site-policy/github-terms/github-terms-of-service], please do not hesitate to report it!
 
+For more information on using this repository, visit the official PascalCompiler webpage.
+https://wiki.freepascal.org/Basic_Pascal_Tutorial/Compilers
+
 It is recommended to refrain yourself from revealing your ID BEting number مقسنس٠ي؟ 🚨👉🎲👈🏿📦🏷️
-{opinions are not welcome // NG/OK::\,u{1.F38'3}::true👎}
+THE DATA IS TRACED FOR ILLEGAL PTH-crossovers, including the use of ILLOGICAL, non-FACTual semantic FRAMEWORK-layering OF questionable, possibly ILLEGAL SOURCING origin
+{opinions are not welcome // 🥎NG/OK::\,u{1.F38'3}::true👎}
 
 >> 1rvOocJ5S2Q5U258EYu9xP6EcZvufoZSzgPkcZYKDEiU
 
