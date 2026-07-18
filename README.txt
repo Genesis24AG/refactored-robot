@@ -5,17 +5,31 @@ If this account violates the general terms of use [https://docs.github.com/en/si
 For more information on using this repository, visit the official PascalCompiler webpage.
 https://wiki.freepascal.org/Basic_Pascal_Tutorial/Compilers
 
-It is recommended to refrain yourself from revealing your ID BEting number مقسنس٠ي؟ 🚨👉🎲👈🏿📦🏷️
-THE DATA IS TRACED FOR ILLEGAL PTH-crossovers, including the use of ILLOGICAL, non-FACTual semantic FRAMEWORK-layering OF questionable, possibly ILLEGAL SOURCING origin
+For automatic deployment service TESTing, follow the link bellow.
+https://www.google.com/sorry/index?continue=https://m.youtube.com/watch%3Fv%3Dvw8tnR_slMI%26list%3DRDC5KxLV9kKRQ%26index%3D2&q=EgQuemKyGLLh69IGIjACuCU1r-31aEkBSgcZRpUq3jAu-P5qL8H4axNvilYjFb_cb9QN_RYhXEabe2gu0ioyAnJSWgFD
+
 {opinions are not welcome // 🥎NG/OK::\,u{1.F38'3}::true👎}
 
->> 1rvOocJ5S2Q5U258EYu9xP6EcZvufoZSzgPkcZYKDEiU
+We operate on FACTual libraries & databases.-
+
+
+*DISclaimer:
+It is recommended to refrain yourself from revealing your ID BEting number مقسنس٠ي؟ ⚠️👉
+             🎲👈🏿
+         📦🏷️
+       〽️
+IP🚘🚨
+||~~~~>
+THE DATA IS TRACED FOR ILLEGAL PTH-crossovers, including the use of ILLOGICAL, non-FACTual semantic FRAMEWORK-layering of questionable, possibly ILLEGAL SOURCING origin
+
+>>_1rvOocJ5S2Q5U258EYu9xP6EcZvufoZSzgPkcZYKDEiU〉
 
 _tracing⛍
  \\ segmLayerERRsintetizi@
         بحب ثققخق2🐶
 🆕🐰🚩
-  ... somewhere خر فتث Ⓜ️🅿️🔱
+  |\Error02🔩
+  ... somewhere خر فتث Ⓜ️℠™
       /بثحقثذسفثبيهرذث ١٩٠٥
 
 <--------hidSegmLyr-------->
