@@ -7,8 +7,9 @@ https://wiki.freepascal.org/Basic_Pascal_Tutorial/Compilers
 
 For automatic deployment service TESTing, follow the link bellow.
 https://www.google.com/sorry/index?continue=https://m.youtube.com/watch%3Fv%3Dvw8tnR_slMI%26list%3DRDC5KxLV9kKRQ%26index%3D2&q=EgQuemKyGLLh69IGIjACuCU1r-31aEkBSgcZRpUq3jAu-P5qL8H4axNvilYjFb_cb9QN_RYhXEabe2gu0ioyAnJSWgFD
-
-{opinions are not welcome // 🥎NG/OK::\,u{1.F38'3}::true👎}
+|\err01♖
+//
+{opinions are generaLLÿ not welcome // 🥎NG/OK::\,u{1.F38'3}::true👎}
 
 We operate on FACTual libraries & databases.-
 
